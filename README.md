@@ -21,4 +21,5 @@ Reflektion:
 9. Nichts, ich kann nicht geärgert sein
 10. Keine Ahnung
 11. Mein Schatzi
-12. 11.
+12. 11. uwu
+
